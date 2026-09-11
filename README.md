@@ -10,7 +10,7 @@
 
 ## hi (～￣▽￣)～
 
-M.S. student in Robotics | Pose Estimation
+M.S. student in ??? | ???
 
 Email: nopostpone@qq.com
 
